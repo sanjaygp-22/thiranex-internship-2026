@@ -1,0 +1,1 @@
+# thiranex-internship-2026
